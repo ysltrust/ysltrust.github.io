@@ -15,7 +15,7 @@ Small Office Space, Approx. 500 S.F., 6009 Richmond Avenue #224
 
 
 
-Large Office Space, Approx. 3,005 S.F., 6009 Richmond Avenue #130 (13 Rooms, Kitchenette, Private Bathroom
+Large Office Space, Approx. 3,005 S.F., 6009 Richmond Avenue #130 (13 Rooms, Kitchenette, Private Bathroom)
 
 
 Contact
