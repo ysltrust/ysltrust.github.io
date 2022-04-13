@@ -1,14 +1,14 @@
 YSLTrust Current Leasing Opportunities
 
 
-Wilcrest Plaza
+###Wilcrest Plaza
 
 Fresh Scent Dry Cleaners, Approx. 3,250 S.F., 1988A Wilcrest Dr. Houston, TX 77042
 
 
 
 
-6009 Richmond
+###6009 Richmond
 
 Small Office Space, Approx. 500 S.F., 6009 Richmond Avenue #224
 
