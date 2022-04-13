@@ -1,4 +1,4 @@
-# YSLTrust Current Leasing Opportunities
+# YSLTrust Leasing Opportunities
 
 
 # Wilcrest Plaza
