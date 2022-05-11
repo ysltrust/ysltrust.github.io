@@ -1,4 +1,4 @@
-# YSL Trust Leasing Opportunities<br><br>
+# YS Interest Leasing Opportunities<br><br>
 # Wilcrest Plaza<br><br>
 Fresh Scent Dry Cleaners, Approx. 3,250 S.F., 1988A Wilcrest Dr. Houston, TX 77042<br><br><br>
 # 6009 Richmond<br><br>
